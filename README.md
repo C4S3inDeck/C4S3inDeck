@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Case
+- 👀 I’m interested in playing chess and pokemon tcg
+- 🌱 I’m currently learning coding
+- 💞️ I’m looking to collaborate on some project and get a profit
+- 📫 How to reach me: Instagram: @caseindeck
